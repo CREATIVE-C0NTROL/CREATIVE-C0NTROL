@@ -4,7 +4,7 @@
 
 <br><br>
 
-<img src="https://64.media.tumblr.com/56a6644dd016073d42c18c4171e4beaf/07dddcf27f293b2b-f7/s1280x1920/6779235308aa3f1699ffd07f9709a5a30ba59cec.pnj" width="300">
+<img src="https://64.media.tumblr.com/b0743f854bf7d28b6c7bbb138dbf48bf/c3aab6a0df625851-54/s2048x3072/e6e63926aa1e75393fc48b2a7ec55eb26cd72638.pnj" width="190">
 
 <br><br>
 
