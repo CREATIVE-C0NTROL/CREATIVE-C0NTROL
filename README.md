@@ -13,5 +13,5 @@
 
   <br><img src="https://64.media.tumblr.com/2368199e4ef629b4a9478b64f35216d5/3eb93ef5e0a5ec33-6d/s100x200/b66d9d6340a855f0f2eec3fde93a25aff2016e52.gifv">
  
-  </p> <br><br><a href="https://ariabooo.straw.page/">sp</a> 　     　     𐂯 　     　     <a href="https://themagmaticmonstriosity.atabook.org/">ata</a> <img src="https://i.imgur.com/R5rta43.gif"> 
+  </p> <br><br><a href="https://repris.org/haveenzone">info</a> 　     　     𐂯 　     　     <a href="https://themagmaticmonstriosity.atabook.org/">ata</a> <img src="https://i.imgur.com/R5rta43.gif"> 
   </div>
