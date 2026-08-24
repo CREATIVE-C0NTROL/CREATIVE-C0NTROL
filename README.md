@@ -11,7 +11,7 @@
 <br/><br/>
 
 
-$$\textrm{\color{#ff595e}keith / kuri}$$
+$$\textrm{\color{#b95766}keith / kuri}$$
 
 <br/>
 
@@ -25,12 +25,12 @@ $$\textrm{\color{#ff595e}keith / kuri}$$
 <p align="center">
   <img src="https://i.postimg.cc/qMfhZgzS/image-2024-05-24-000754124.png" width="100" align="center" alt="small div" />
   &nbsp;
-  ${\textsf{\color{#ff595e}he / they / it}}$
+  ${\textsf{\color{#ad525e}he / they / it}}$
   &nbsp;
   <img src="https://64.media.tumblr.com/0bd70ffc782f45dd0c2af1eaa05dd8d0/b35386097b3ae593-60/s100x200/7ad82cd52a071baa6ef8b88c37fe0190f6c88951.gifv" width="7%" align="center" alt="stamp" />
 </p>
 
-$$\texttt{\color{#ff595e}azeri / partly russian}$$
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $$\texttt{\color{#8c4755}azeri / partly russian}$$
 
  </p> <br><br><a href="https://repris.org/haveenzone">info</a> 　     　     𐂯 　     　     <a href="https://themagmaticmonstriosity.atabook.org/">ata</a> <img src="https://i.imgur.com/24zLkqi.gif"> 
   </div>
