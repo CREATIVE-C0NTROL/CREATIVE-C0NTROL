@@ -6,7 +6,7 @@
 <br/><br/>
 
 
-<img src="https://i.pinimg.com/originals/9b/2e/e1/9b2ee190d13de08ca5e8b0fa01b2121f.gif" width="40%" alt="banner" />
+<img src="https://64.media.tumblr.com/c95a4a54401e452bbf9051fad3f9539e/d4e6122202cd42d2-80/s1280x1920/03469a303f9c485b03e4ae885aaaac9ddc9710d8.pnj" width="40%" alt="banner" />
 
 <br/><br/>
 
@@ -27,10 +27,10 @@ $$\textrm{\color{#b95766}keith / kuri}$$
   &nbsp;
   ${\textsf{\color{#ad525e}he / they / it}}$
   &nbsp;
-  <img src="https://64.media.tumblr.com/0bd70ffc782f45dd0c2af1eaa05dd8d0/b35386097b3ae593-60/s100x200/7ad82cd52a071baa6ef8b88c37fe0190f6c88951.gifv" width="7%" align="center" alt="stamp" />
+  <img src="https://blinkies.cafe/b/display/0106-vicioussmiley.gif" width="7%" align="center" alt="stamp" />
 </p>
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $$\texttt{\color{#8c4755}azeri / partly russian}$$
 
- </p> <br><br><a href="https://repris.org/haveenzone">info</a> 　     　     𐂯 　     　     <a href="https://themagmaticmonstriosity.atabook.org/">ata</a> <img src="https://i.imgur.com/24zLkqi.gif"> 
+ </p> <br><br><a href="https://repris.org/haveenzone">info</a> 　     　     𐂯 　     　     <a href="https://themagmaticmonstriosity.atabook.org/">ata</a> <img src="https://i.imgur.com/XWLITAK.gif"> 
   </div>
