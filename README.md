@@ -27,7 +27,7 @@ $$\textrm{\color{#b95766}keith / kuri}$$
   &nbsp;
   ${\textsf{\color{#ad525e}he / they / it}}$
   &nbsp;
-  <img src="https://blinkies.cafe/b/display/0106-vicioussmiley.gif" width="7%" align="center" alt="stamp" />
+  <img src="https://64.media.tumblr.com/921d13ff4ab5a88b0b3aa8c8aed72271/3b6b7d4a6bddf801-9f/s100x200/0ba03a5223c8d02f3763ace44f62aae7863e9ba6.gifv" width="5%" align="center" alt="stamp" />
 </p>
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $$\texttt{\color{#8c4755}azeri / partly russian}$$
