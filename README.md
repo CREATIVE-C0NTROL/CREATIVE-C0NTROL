@@ -1,7 +1,7 @@
 <div align="center">
 
 
-<img src="https://64.media.tumblr.com/e55cea20599c0f09828e85881e91fd41/745a7ba517e5cac9-67/s2048x3072/992a0329985bae1e33f84b24703cb77a9500977b.jpg" width="30%" alt="divider" />
+<img src="https://i.postimg.cc/NFJkGQtz/image-2024-05-24-133703486.png" width="30%" alt="divider" />
 
 <br/><br/>
 
@@ -11,7 +11,7 @@
 <br/><br/>
 
 
-$$\textrm{\color{#b95766}keith / kuri}$$
+$$\textrm{\color{#FFD00}keith / kuri}$$
 
 <br/>
 
@@ -25,12 +25,12 @@ $$\textrm{\color{#b95766}keith / kuri}$$
 <p align="center">
   <img src="https://i.postimg.cc/qMfhZgzS/image-2024-05-24-000754124.png" width="100" align="center" alt="small div" />
   &nbsp;
-  ${\textsf{\color{#ad525e}he / they / it}}$
+  ${\textsf{\color{#FFD00}he / they / it}}$
   &nbsp;
   <img src="https://64.media.tumblr.com/921d13ff4ab5a88b0b3aa8c8aed72271/3b6b7d4a6bddf801-9f/s100x200/0ba03a5223c8d02f3763ace44f62aae7863e9ba6.gifv" width="5%" align="center" alt="stamp" />
 </p>
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $$\texttt{\color{#8c4755}azeri / partly russian}$$
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $$\texttt{\color{#FFD00}azeri / partly russian}$$
 
  </p> <br><br><a href="https://repris.org/haveenzone">info</a> 　     　     𐂯 　     　     <a href="https://themagmaticmonstriosity.atabook.org/">ata</a> <img src="https://i.imgur.com/XWLITAK.gif"> 
   </div>
