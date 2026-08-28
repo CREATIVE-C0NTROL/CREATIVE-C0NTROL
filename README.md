@@ -1,7 +1,7 @@
 <div align="center">
 
 
-<img src="https://i.postimg.cc/NFJkGQtz/image-2024-05-24-133703486.png" width="30%" alt="divider" />
+<img src="https://i.postimg.cc/B67DWM4T/image-2024-05-24-133247386.png" width="10%" alt="divider" />
 
 <br/><br/>
 
