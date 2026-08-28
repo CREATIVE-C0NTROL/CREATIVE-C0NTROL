@@ -6,7 +6,7 @@
 <br/><br/>
 
 
-<img src="https://64.media.tumblr.com/c95a4a54401e452bbf9051fad3f9539e/d4e6122202cd42d2-80/s1280x1920/03469a303f9c485b03e4ae885aaaac9ddc9710d8.pnj" width="40%" alt="banner" />
+<img src="https://i.pinimg.com/originals/e9/dd/02/e9dd028669ca0b2a6b6cfabf28f7de1d.gif" width="40%" alt="banner" />
 
 <br/><br/>
 
