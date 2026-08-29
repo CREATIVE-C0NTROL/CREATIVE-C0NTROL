@@ -9,7 +9,7 @@ $$\texttt{\color{#795C5F} ⃟ 💬 do u think we'll b in love 4eva? }$$
 
 <br />
 
-<img src="https://64.media.tumblr.com/82a025fdb1a60a2919e55db1429b244b/3caae08045d512d3-16/s1280x1920/49d0e5ce4714475ed8b1ab5828bb3dc510a217d3.pnj" width="290" alt="e" />
+<img src="https://64.media.tumblr.com/ac4976b07dcb1e0946cd1ce73f882a9a/f79ece2fac28f53c-a5/s2048x3072/bbd09a7e970abb41120df0a84b5997f0a14f49f5.pnj" width="350" alt="e" />
 
 <br /><br />
 
