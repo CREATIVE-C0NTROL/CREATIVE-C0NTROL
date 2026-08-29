@@ -1,36 +1,32 @@
 <div align="center">
+<table>
+  <tr>
+    <td align="center">
 
+<br />
 
-<img src="https://i.postimg.cc/B67DWM4T/image-2024-05-24-133247386.png" width="10%" alt="divider" />
+$$\texttt{\color{#795C5F} ⃟ 💬 do u think we'll b in love 4eva? }$$
 
-<br/><br/>
+<br />
 
+<img src="https://64.media.tumblr.com/82a025fdb1a60a2919e55db1429b244b/3caae08045d512d3-16/s1280x1920/49d0e5ce4714475ed8b1ab5828bb3dc510a217d3.pnj" width="290" alt="e" />
 
-<img src="https://i.pinimg.com/originals/e9/dd/02/e9dd028669ca0b2a6b6cfabf28f7de1d.gif" width="40%" alt="banner" />
+<br /><br />
 
-<br/><br/>
+$$\texttt{\color{#795c5f}⟡  keith }$$ &nbsp;&nbsp;<sup>ou</sup>&nbsp;&nbsp; $$\texttt{\color{#795c5f}kuri  ᭡ }$$
 
+$$\texttt{\color{#795c5f}he / they ┊ 18 }$$
 
-$$\textrm{\color{#FFD00}keith / kuri}$$
+────────────
 
-<br/>
+$$\texttt{\color{#795c5f}౨ৎ non-binary ´ berrisexual }$$
 
+<br />
 
-<img src="https://files.catbox.moe/sfh0vk.png" width="40%" alt="divider" />
+<img src="https://i.imgur.com/XWLITAK.gif"> $$\texttt{\color{#B07B7B} audhd ┊ isfp-t ┊ c*h freely  }$$
 
+<sub><a href="https://repris.org/haveenzone">01</a></sub> ‧ <sub><a href="https://themagmaticmonstriosity.atabook.org/">02</a></sub> ‧ <sub><a href="https://youtu.be/pONQ_dpiVgI?si=_Tn3jHWE3U8mmQa-">03</a></sub> ⁺
 
-<br/><br/>
+<br />
 
-
-<p align="center">
-  <img src="https://i.postimg.cc/qMfhZgzS/image-2024-05-24-000754124.png" width="100" align="center" alt="small div" />
-  &nbsp;
-  ${\textsf{\color{#FFD00}he / they / it}}$
-  &nbsp;
-  <img src="https://64.media.tumblr.com/921d13ff4ab5a88b0b3aa8c8aed72271/3b6b7d4a6bddf801-9f/s100x200/0ba03a5223c8d02f3763ace44f62aae7863e9ba6.gifv" width="5%" align="center" alt="stamp" />
-</p>
-
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $$\texttt{\color{#FFD00}azeri / partly russian}$$
-
- </p> <br><br><a href="https://repris.org/haveenzone">info</a> 　     　     𐂯 　     　     <a href="https://themagmaticmonstriosity.atabook.org/">ata</a> <img src="https://i.imgur.com/XWLITAK.gif"> 
-  </div>
+</td></tr></table></div>
