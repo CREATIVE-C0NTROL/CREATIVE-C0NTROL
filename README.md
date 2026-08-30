@@ -15,7 +15,7 @@ $$\texttt{\color{#795C5F} ⃟ 💬 do u think we'll b in love 4eva? }$$
 
 $$\texttt{\color{#795c5f}⟡  keith }$$ &nbsp;&nbsp;<sup>ou</sup>&nbsp;&nbsp; $$\texttt{\color{#795c5f}kuri  ᭡ }$$
 
-$$\texttt{\color{#795c5f}he / they ┊ 18 }$$
+$$\texttt{\color{#795c5f}he / they ┊ 16 }$$
 
 ────────────
 
