@@ -9,7 +9,7 @@ $$\texttt{\color{#795C5F} ⃟ 💬 do u think we'll b in love 4eva? }$$
 
 <br />
 
-<img src="https://i.pinimg.com/736x/43/39/46/433946b56b98127cfbd5a7e8bea0d088.jpg" width="350" alt="e" />
+<img src="https://static.wikia.nocookie.net/zenless-zone-zero/images/8/85/Mindscape_Jane_Doe_Full.png/revision/latest/scale-to-width-down/1000?cb=20240904171837" width="470" alt="e" />
 
 <br /><br />
 
