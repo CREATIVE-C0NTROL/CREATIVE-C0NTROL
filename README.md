@@ -1,6 +1,6 @@
 <div align="center">
 
-<a href="https://themagmaticmonstriosity.atabook.org/">ata</a> &nbsp;&nbsp; <a href="https://repris.org/haveenzone">info</a> &nbsp;&nbsp; <a href="https://youtu.be/pONQ_dpiVgI?si=_Tn3jHWE3U8mmQa-">extra link idfk</a>
+<a href="https://themagmaticmonstriosity.atabook.org/">ata</a> &nbsp;&nbsp; <a href="https://repris.org/haveenzone">info</a> &nbsp;&nbsp; <a href="https://docs.google.com/document/d/1InDzZ2O6vtPMBTVtjYPdspKpVmBMW24MocKIP2rm1iQ/edit?tab=t.0#heading=h.xmsylk1c8sjw">stop using rentry</a>
 
 <br><br>
 
