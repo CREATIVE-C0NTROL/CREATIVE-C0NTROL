@@ -11,7 +11,7 @@ $\color{#30362F}{\text{⎔ }}\mathbf{\text{keith}}\quad\color{#A3500C}{\text{♡
 <br><br>
 
 
-$\mathbf{\text{aod}}\quad\color{#A3500C}{\text{fan ⟡ }}\quad\color{#625834}{\text{audhd}}\quad\color{#30362F}{\text{( ᴗ͈ˬᴗ͈)ഒ}}\quad\color{#FFFBDB}{\text{ノ}}\quad\color{#808000}{\text{bpd}}$
+$\mathbf{\text{pico}}\quad\color{#A3500C}{\text{superfan ⟡ }}\quad\color{#625834}{\text{audhd}}\quad\color{#30362F}{\text{( ᴗ͈ˬᴗ͈)ഒ}}\quad\color{#FFFBDB}{\text{ノ}}\quad\color{#808000}{\text{bpd}}$
 
 <br>
 
