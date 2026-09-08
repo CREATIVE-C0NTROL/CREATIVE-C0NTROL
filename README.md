@@ -1,17 +1,17 @@
 <div align="center">
 
 
-$\color{#2B6CB0}{\text{⎔ }}\mathbf{\text{keith}}\quad\color{#E53E3E}{\text{♡ }}\color{#9AEDCE}{\text{he/they}}\quad\color{#3182CE}{\text{💢 }}\color{#C53030}{\text{16teen}}$
+$\color{#30362F}{\text{⎔ }}\mathbf{\text{keith}}\quad\color{#A3500C}{\text{♡ }}\color{#625834}{\text{he/they}}\quad\color{#625834}{\text{💢 }}\color{#FFFBDB}{\text{16teen}}$
 
 <br>
 
 
-<img src="https://file.garden/akEaL9X-mGilvUEH/Untitled90_20260907214202.png" width="230" alt="banner">
+<img src="https://i.pinimg.com/originals/24/a1/b8/24a1b8774a35ca8a2c0835df90c9d631.gif" width="230" alt="banner">
 
 <br><br>
 
 
-$\mathbf{\text{aod}}\quad\color{#C53030}{\text{fan ⟡ }}\quad\color{#2B6CB0}{\text{audhd}}\quad\color{#A0AEC0}{\text{( ᴗ͈ˬᴗ͈)ഒ}}\quad\color{#1A202C}{\text{ノ}}\quad\color{#808000}{\text{bpd}}$
+$\mathbf{\text{aod}}\quad\color{#A3500C}{\text{fan ⟡ }}\quad\color{#625834}{\text{audhd}}\quad\color{#30362F}{\text{( ᴗ͈ˬᴗ͈)ഒ}}\quad\color{#FFFBDB}{\text{ノ}}\quad\color{#808000}{\text{bpd}}$
 
 <br>
 
