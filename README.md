@@ -1,25 +1,39 @@
 <div align="center">
 
+  <img src="https://i.postimg.cc/NMDDTKBK/image-2024-05-23-212019258.png" width="200" alt="divider"><br><br>
 
-$\color{#30362F}{\text{⎔ }}\mathbf{\text{keith}}\quad\color{#A3500C}{\text{♡ }}\color{#625834}{\text{he/they}}\quad\color{#625834}{\text{💢 }}\color{#FFFBDB}{\text{16teen}}$
+  <img src="https://64.media.tumblr.com/af50b3244c6579e3de6e436a115eef90/77497ac367e977ea-60/s2048x3072/e4f5a74784e0a726a641e57f4d6b296253badc76.pnj" width="280" alt="main picture"><br><br>
 
-<br>
+  <div>
+    <img src="https://readme-typing-svg.demolab.com?font=Henny+Penny&size=16&pause=1000&color=8B5E6E&center=true&vcenter=true&width=60&lines=keith" alt="Name">
+    <img src="https://i.imgur.com/UdSgFiV.gif" width="20" height="20" style="vertical-align: middle;">
+    <img src="https://readme-typing-svg.demolab.com?font=Henny+Penny&size=16&pause=1000&color=8B5E6E&center=true&vcenter=true&width=90&lines=he+or+they" alt="Pronouns">
+    <img src="https://i.imgur.com/RmLxCpJ.gif" width="20" height="20" style="vertical-align: middle;">
+  </div>
+  <br>
 
+  <div>
+    <img src="https://readme-typing-svg.demolab.com?font=Irish+Grover&size=16&pause=1000&color=8B5E6E&center=true&vcenter=true&width=200&lines=c*h+freely.+ISFP-T.+audhd" alt="Info">
+  </div>
+  <br>
 
-<img src="https://i.pinimg.com/originals/24/a1/b8/24a1b8774a35ca8a2c0835df90c9d631.gif" width="230" alt="banner">
+  <div>
+    <img src="https://file.garden/akEaL9X-mGilvUEH/lovefool.png" width="120" style="vertical-align: middle;">
+  </div>
+  <br><br>
 
-<br><br>
+  <div>
+    <a href="https://themagmaticmonstriosity.atabook.org/">
+      <img src="https://readme-typing-svg.demolab.com?font=Irish+Grover&size=16&pause=1000&color=8B5E6E&center=true&vcenter=true&width=100&lines=%5B%20Atabook%20%5D" alt="ata">
+    </a>
+    &nbsp;&nbsp;&nbsp;
+    <a href="https://repris.org/haveenzone">
+      <img src="https://readme-typing-svg.demolab.com?font=Irish+Grover&size=16&pause=1000&color=8B5E6E&center=true&vcenter=true&width=100&lines=%5B%20Info%20%5D" alt="info">
+    </a>
+  </div>
 
+  <br>
 
-$\mathbf{\text{pico}}\quad\color{#A3500C}{\text{superfan ⟡ }}\quad\color{#625834}{\text{audhd}}\quad\color{#30362F}{\text{( ᴗ͈ˬᴗ͈)ഒ}}\quad\color{#FFFBDB}{\text{ノ}}\quad\color{#808000}{\text{bpd}}$
-
-<br>
-
-<a href="https://themagmaticmonstriosity.atabook.org/">ata</a> &nbsp;&nbsp; <a href="https://repris.org/haveenzone">info</a> &nbsp;&nbsp; <a href="https://docs.google.com/document/d/1InDzZ2O6vtPMBTVtjYPdspKpVmBMW24MocKIP2rm1iQ/edit?tab=t.0#heading=h.xmsylk1c8sjw">stop using rentry</a>
-
-
-<br><br>
-
-<img src="https://i.postimg.cc/vBYD1B02/image-2024-05-23-211836542.png" width="210" alt="divider">
+  <img src="https://i.postimg.cc/x1mP5x9D/image-2024-05-23-212030973.png" width="200" alt="divider">
 
 </div>
