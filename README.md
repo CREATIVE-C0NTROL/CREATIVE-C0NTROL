@@ -11,7 +11,7 @@
 
 <h5 align="center">
 <details>
-  <summary>　　　(*ฅ́˘ฅ̀*)　　　</summary>
+  <summary>　　　click for oomf list & ata　　　</summary>
   <br>
   <table align="center"><caption>
     <tr><td align="center">
